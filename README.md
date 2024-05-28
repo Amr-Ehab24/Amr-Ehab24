@@ -1,4 +1,3 @@
-# Amr-Ehab24
 # Hi there 👋
 
 ## Welcome to [Amr-Ehab24]'s profile!
